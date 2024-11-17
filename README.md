@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ritik-Singh-bit
 - 👀 I’m interested in online Games 
-- 🌱 I’m currently learning multiple languages and working in projects
+- 🌱 I’m currently learning multiple languages and working on projects
 - 💞️ I’m looking to collaborate on ...
 - 📫 You easily reach me by conneting me any of my social media platform
 - 😄 Pronouns: ...
